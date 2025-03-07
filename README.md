@@ -4,6 +4,9 @@
 ## 2019-2020:
 ![image](https://github.com/trietptm/De-Thi-Toan-Tuyen-Sinh-Lop-10-Chuyen-THTH-DHSP/assets/526959/cbd03e3e-6afd-41d8-a01c-13a13c1151ea)
 
+## 2018-2019:
+![image](https://github.com/user-attachments/assets/7379fb80-20c2-4abd-8604-1dd6675bb6c0)
+
 ## 2012-2013:
 ![image](https://github.com/trietptm/De-Thi-Toan-Tuyen-Sinh-Lop-10-Chuyen-THTH-DHSP/assets/526959/15ab0e75-13ea-4df1-920a-8c68b081b55a)
 
